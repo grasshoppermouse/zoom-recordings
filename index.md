@@ -27,5 +27,4 @@
 
 [Lab Feb 1, 2024 11:56 AM](https://wsu.zoom.us/rec/share/dAvSA1M0Th4i6uD543z0_I8Wnrj9Yn6tOWRo9FWk0ssH7Y_YSkwnIfqfJ89S24Vs.O628nnxgLK0SNNey)
 
-
-[Lecture NA](Share recording with viewers:)
+[Lecture Feb 6, 2024 09:03 AM](https://wsu.zoom.us/rec/share/ioOYCVlqZh7CqvkL4CNB9Exyy_W_m_LlE3kC8m1MZakhcbzTR5For93tEQrWSVSP.SP7D8v1MAhKkVSKP)
