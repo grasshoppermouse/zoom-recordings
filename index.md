@@ -34,3 +34,5 @@
 [Lecture Feb 8, 2024 09:05 AM](https://wsu.zoom.us/rec/share/bnuh0Hh4HvCwJq_Nmw8tW673VKR0F-C0Q97tZVP_3nChmRXXjdwsL8Q522RwLLo7.Ze9wVtOi0HkM8A2L)
 
 [Lab Feb 8, 2024 11:59 AM](https://wsu.zoom.us/rec/share/TiNhM45HHadpqSTEy9p7t4PaPIWIVtEjwz3bvKMfFX8g-DMb50cuWoOUWaV8361K.vBMFiJtsGO6SDcvR)
+
+[Lecture Feb 13, 2024 11:16 AM](https://wsu.zoom.us/rec/share/PBrlAz6c-zJhpAfQEEqf1DJOAImdgAMwFMn3yLGIdkYL91qsYfvDStO3WX0G8vZ6.jG9aHwa-mTVPAN9w)
