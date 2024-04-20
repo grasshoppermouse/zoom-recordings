@@ -68,3 +68,21 @@
 [Lab Apr 2, 2024](https://wsu.zoom.us/rec/share/WQa8DfU12OKjGxosAQMV_hFdm-AULylNi5Xw4YdOe74asOzGCU7D6KPyryc7D4Rc.JaWbhV9o20AcoRTY)
 
 [Lecture Apr 4, 2024](https://wsu.zoom.us/rec/share/ed0XM313-Uc0Q7Wq0LoYAOwJcSNrijxT5i6hJp7im1jlX1lJwev1Cy16osfQJM4L.BaoHE-KvfPraT259)
+
+[Lab Apr 4, 2024](https://wsu.zoom.us/rec/share/PEtmdEYtUkQW7N2XHXkAivClPX0FnYMQJ9_7qYhvBmVLaZiBxGzM4XYLxi2zBBMh.TkcySYESvWpzc0vM)
+
+[Lecture Apr 9, 2024](https://wsu.zoom.us/rec/share/sJH4-KiPfC1nwNgrdyGH-jSN_cOJ2KquY6k0jh4Ppc465fsbYCSxpYzXVmw161wl.uboiqr8dVw7ILj7r)
+
+[Lab Apr 9, 2024](https://wsu.zoom.us/rec/share/i3Mp-E9ECEauk3QctNRPvf2HKyyMESpMzcpRgEWaXsczWTsnmY7b-t8_Hq6y7TU.0P-byqdc-EzIGOlq)
+
+[Lecture Apr 11, 2024](https://wsu.zoom.us/rec/share/grwU79bIEKHdvmQvhAKynuwEE88hx29Zn1ueRfQ8C3CEnRDQowoYMaEmBXAfncb9.vVTRzI4NxPZNdGQB)
+
+[Lab Apr 11, 2024] (https://wsu.zoom.us/rec/share/6NrS5QvCGYxllLoO_7R9c-mMdg5pLD7X5Brnp3Zlp8DaD4f7UQAViMSZXraa_KzL.cu-l_IAjOd_edtii)
+
+[Lecture Apr 16, 2024](https://wsu.zoom.us/rec/share/020l0-zUwWW0grocuaR42mpAASatToT0IkuEBNoQ2kH71u9F0W0QghuNMzcgmsNB.U5elTkmBYqEAKBh1)
+
+[Lab Apr 16, 2024](https://wsu.zoom.us/rec/share/dIdoERkHiGMrb_WFAwfSKezUdYXHGgEr_F4vsMUznE9kIthVWsq2zvvhGXUxZ88G.sjyK9lqYbSOG9_tC)
+
+[Lecture Apr 18, 2024](https://wsu.zoom.us/rec/share/kHlqqXZmR6Ow6tBW6y0veTcROG-0ksvFPp4OWM1b51IsSSeHVJu56L9G_x2SVmBk.OsipqvhFQMyeUN0W)
+
+[Lab Apr 18, 2024](https://wsu.zoom.us/rec/share/GpWgu9sMKTI1CFsd9WtGcs0bC4K1eI5L7xqIcHJ3-pe0aJ1ybdjDPW3zuzw44LSS.D-vRKfykAluslSHH)
