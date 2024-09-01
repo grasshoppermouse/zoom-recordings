@@ -6,3 +6,6 @@
 
 [Lecture Date: Aug 26, 2024 10:37 AM](https://wsu.zoom.us/rec/share/zE2ux6dOUB_M3iUCqpQs6TgKXmWMfJkDSWSmG4oMwdnKuyxBBhurjKf5jhpnptbr.q2ywfblSiT4-4VPg)
 
+
+[Lecture Date: Aug 28, 2024 10:40 AM](https://wsu.zoom.us/rec/share/PzrI8rWwWlajiq2r47iGVnFj6zM5ZN0mdwEnulmHICpmBTw8CF1mHx6Nj3zGaHea.g9_Y0w3fs_wVbPc7)
+
