@@ -24,3 +24,6 @@
 
 [Lecture Date: Sep 23, 2024 10:36 AM](https://wsu.zoom.us/rec/share/IgRx5_umscAeBIqDEAFh1Im96gUU5_x6wPNsPVSHd7HZU54v3YF-3yxTszJ26Ivb.RLU9WveSd9WW4cYD)
 
+
+[Lecture Date: Sep 30, 2024 10:36 AM](https://wsu.zoom.us/rec/share/_Y9VH1_7Or63eLq3EX9aQdM6Zg5z23hOrAdRKFz3rGl98k18D1PmGkQ-HWNzgiqM.CToH5WjOfqbLfuKk)
+
