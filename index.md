@@ -42,3 +42,5 @@
 
 [Lecture Date: Oct 16, 2024 10:37 AM](https://wsu.zoom.us/rec/share/ZXqsmYTRp56X8eTpJLhxDPtQZ4BQ-XTIgoXB2G6_zc_k7X7xlYLdQ3Ovs2mL4HAx.OiFjYNai-Yk_nIse)
 
+
+[Topic: Anth 268 Fall 2024 Date: Oct 21, 2024 10:25 AM](https://wsu.zoom.us/rec/share/K74sGPZfT8a8Rnnb5xn5KgAFCgI5N028qsKSFeZ_SVKzRrCNGmYKRUgTa7IMlhax.PoqCDd0KRrLNq0tI)
