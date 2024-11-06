@@ -48,3 +48,6 @@
 
 [Lecture Date: Oct 28, 2024 10:35 AM](https://wsu.zoom.us/rec/share/fz-E8c0e52ANgvyZ3f_s1GPINS8ufew4sdA_B_opKWnHMYHKsAXfOBjJZv1PRl0O.klvtBppjvzyaLTmR)
 
+[Lecture Date: Oct 30, 2024 10:35 AM](https://wsu.zoom.us/rec/share/xDjApBqSTxj-gE1KR5XqFwJ2zhr-hRBzl2lblEOUWmSTT0Psl3YcfaNKjF30-QUV.2woP3QiSVdxk44W2)
+
+[Lecture Date: Nov 4, 2024 10:35 AM](https://wsu.zoom.us/rec/play/80YdorA6-LNLdYIxb8Zm35x8-Ysw_30K0Nsj3Ll3Qj8jvr_5Ttri_FGYcWvcB-28hZxeOPKq6y1lp_hO.ZgKFNDDhmj46d03a)
