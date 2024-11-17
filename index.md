@@ -43,12 +43,16 @@
 [Lecture Date: Oct 16, 2024 10:37 AM](https://wsu.zoom.us/rec/share/ZXqsmYTRp56X8eTpJLhxDPtQZ4BQ-XTIgoXB2G6_zc_k7X7xlYLdQ3Ovs2mL4HAx.OiFjYNai-Yk_nIse)
 
 
-[Topic: Anth 268 Fall 2024 Date: Oct 21, 2024 10:25 AM](https://wsu.zoom.us/rec/share/K74sGPZfT8a8Rnnb5xn5KgAFCgI5N028qsKSFeZ_SVKzRrCNGmYKRUgTa7IMlhax.PoqCDd0KRrLNq0tI)
+[Lecture Date: Oct 21, 2024 10:25 AM](https://wsu.zoom.us/rec/share/K74sGPZfT8a8Rnnb5xn5KgAFCgI5N028qsKSFeZ_SVKzRrCNGmYKRUgTa7IMlhax.PoqCDd0KRrLNq0tI)
+
 
 [Lecture Date: Oct 28, 2024 10:35 AM](https://wsu.zoom.us/rec/share/fz-E8c0e52ANgvyZ3f_s1GPINS8ufew4sdA_B_opKWnHMYHKsAXfOBjJZv1PRl0O.klvtBppjvzyaLTmR)
 
 
 [Lecture Date: Oct 30, 2024 10:32 AM](https://wsu.zoom.us/rec/share/xDjApBqSTxj-gE1KR5XqFwJ2zhr-hRBzl2lblEOUWmSTT0Psl3YcfaNKjF30-QUV.2woP3QiSVdxk44W2)
+
+
+[Lecture Date: Nov 4, 2024 10:35 AM](https://wsu.zoom.us/rec/play/80YdorA6-LNLdYIxb8Zm35x8-Ysw_30K0Nsj3Ll3Qj8jvr_5Ttri_FGYcWvcB-28hZxeOPKq6y1lp_hO.ZgKFNDDhmj46d03a)
 
 
 [Lecture Date: Nov 13, 2024 10:30 AM](https://wsu.zoom.us/rec/share/OhBFpegwLGCnY-QQ6E3evRKXzU_6gEjRSoikcbiQH6uC6JKzJRunpCAOeF4Y1pV7.-jSKV2rQunWFQKvt)
