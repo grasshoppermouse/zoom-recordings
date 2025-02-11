@@ -19,3 +19,6 @@
 
 [Lecture Date: Jan 30, 2025 09:07 AM](https://wsu.zoom.us/rec/share/4hKEZNvgZYMjJPiMIl6LgMo-uTPV1ia3aB-R5Liq171JwbokiLAsy3vfvTwCU64H.eSM02LR5dy3WD0mj)
 
+
+[Lecture Date: Feb 4, 2025 09:08 AM](https://wsu.zoom.us/rec/share/qlde2XSIpoGOyWX2tqb-n1liatTmdXZmI9tw166xEowVXa9fjPAxkBUc4zZR59wI.uACv0v0QBFjkhnZM)
+
