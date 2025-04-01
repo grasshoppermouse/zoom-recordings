@@ -55,3 +55,6 @@
 
 [Lecture Date: Mar 25, 2025 09:14 AM](https://wsu.zoom.us/rec/share/qziLJaodoK2MmNOAGqw6kVYpayq2xFdGpKICxHt_EltCqC7zX8X976dklAT6IoYR.5tPorZt2B5s5pSDh)
 
+
+[Lecture Date: Mar 27, 2025 09:04 AM](https://wsu.zoom.us/rec/share/LqkzBP-HT8JuSRoeQv_dIZa17mER0mCwGIzABLYAcMEhgF4nPKx9bsSz-LJR01WF.RcoQu_93PdUQ4fnD)
+
