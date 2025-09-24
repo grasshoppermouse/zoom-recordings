@@ -14,3 +14,8 @@
 
 [Sep 10](https://wsu.zoom.us/rec/share/n7XlF818LWpfwTy6HyP_-AXJ5IcNOqDHAl3P2t7EyDPGgWO9YrCE2_gadilnPRgn.ag_-LKSAHytijjT1)
 
+[Sep 15](https://wsu.zoom.us/rec/share/XAQ8FYvNsblG_xoueJUHvYvsvEHKCiwfPgQmCRZpOlU72NDkpkwqXcp-swnLHa0.xH3SBBQPMVapCrNy)
+
+[Sep 17](https://wsu.zoom.us/rec/share/hjyCIV-WhT6m5tmg1tcpUyDs0EMzO9JMq0jDy2bhhDOeP3c4Qyrk7YeYd0aIOJ3q.yJMRhutBIiNV1AgX)
+
+[Sep 22](https://wsu.zoom.us/rec/share/dPh2Kw8xObZOEd5BuitCQg6Eub2i5suznq-OrYD6V_GeZoaGG-AyCtVfvRk5zI1G.ADr-6l2sTISm3ozP)
