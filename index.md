@@ -35,3 +35,7 @@
 [Oct 22](https://wsu.zoom.us/rec/share/dzJcmhtwCLAqEtCEYisb6nzYkCpSeVJEE4Ozcfg9ZUW31MHIx4qgEjlsP24O59wf.sPE2SXAbE8RLBnWR)
 
 [Oct 27](https://wsu.zoom.us/rec/share/qFNVzRgBfZOfjuymGO0qEAmX4avGKJq-UyqniwgN5nMpvxfxzR-1_JX-3BD2zgfJ.krpJvRs5k2UE6pd9)
+
+[oct 29](https://wsu.zoom.us/rec/share/Cc1eGF7gQZZXKLIg0kJ_MJPoaqExKfGNiCRVMV866Z0McxgmKWzjcM2_V1Eg5DKJ.FpIUjuG6kshV10ua)
+
+[Nov 3](https://wsu.zoom.us/rec/share/q4-WdJGzL8k4nIr8wS2Op82eQN3fsN2YhzMeRBuDqFrfS7vd--U8KmIxbh1NT-jk.oJn1rBeaRb9lcVYH)
