@@ -1,53 +1,14 @@
-# Anth 268 Zoom Recordings Fall 2025
+# Anth 260
 
-[Aug 18](https://wsu.zoom.us/rec/share/ZXrxlZIb7yfr6bOQiXVc9kaBs4QWzz04rQ0Trz_dYtA6U28EuuIKah2kxtgOppPv.RrT-dcQCxCeubgn-)
+[Jan 13](https://wsu.zoom.us/rec/share/XfJvX-2YfF1KpjIkAO64Yh4Q8O3ESraFQol5v4YiOgbvW9Xbxzk3Dga6AhkMRfBz.Tuo7o35z39SnDjXu)
 
-[Aug 20](https://wsu.zoom.us/rec/share/4hfin3JEJuQ58IqrljnijHIxpC65w00yJvygJvKAY7NI-HGQ81_P4ZNZgONiZA.XFNuf7OcivZVwDIc)
+[Jan 15](https://wsu.zoom.us/rec/share/7RRg4OYyuG-L9XZlAG-C-DiqqypOL7XFj-Bzdu8tDtUHo9JNfabjyAslwFLzQwgg._e7DTVs09tnkckp9)
 
-[Aug 25](https://wsu.zoom.us/rec/share/niCKTzmyxZXDY3xn6J3SGVtdblYotK4093P5H-52ne2GC0nbnxYtSTjq0mc9cDga.4-r_wwvl5QHri4AM)
+[Jan 20](https://wsu.zoom.us/rec/share/HoBhELIEda9BtMxcJhjC2M0n_S7szvRALxJiijJ53Nknntgz6x7GE0dKtjZ0p62X.qI5en0dDtNe370V_)
 
-[Aug 27](https://wsu.zoom.us/rec/share/fv_cqoWCJsZNwsTjL5Kj_WrxYdGsWylkNbjcTVgMGliXKp1uCHzDHwofid2QqktB.ONuS6wukC9cUiJei)
+# Anth 360
 
-[Sep 3](https://wsu.zoom.us/rec/share/blkEgtUDh30JUWD32MP2EAyiOR6sWIbZ1trtXVycwAUY7ahYpqwUP1JsDQDdbDqO.6aogFThjG9-vQ4bN)
+[Jan 15](https://wsu.zoom.us/rec/share/F3P8ccY3NvU-Xmtagiim6L_17mwDfrsY3GlKdnKFNL1PoGNWTAQ3miwjck9T5Ksr.P0Ddr8zn-srfckn5)
 
-[Sep 8](https://wsu.zoom.us/rec/share/qo3sblY0N-nFjjWi0jZAkVZyUQGciCDC_HRCSNDrDCAGmSWUiTn42gmLNqUpNY3_.jjIQdHAMEuNzh3jC)
+[Jan 20](https://wsu.zoom.us/rec/share/UjbTj7NXYmOZRRToIk896tWmaVT6YqY5GjEuv4AfZ9ZPMdJvFVHUcwUiUg8SEhkn.uzEAZCvJ4eFWvJzV)
 
-[Sep 10](https://wsu.zoom.us/rec/share/n7XlF818LWpfwTy6HyP_-AXJ5IcNOqDHAl3P2t7EyDPGgWO9YrCE2_gadilnPRgn.ag_-LKSAHytijjT1)
-
-[Sep 15](https://wsu.zoom.us/rec/share/XAQ8FYvNsblG_xoueJUHvYvsvEHKCiwfPgQmCRZpOlU72NDkpkwqXcp-swnLHa0.xH3SBBQPMVapCrNy)
-
-[Sep 17](https://wsu.zoom.us/rec/share/hjyCIV-WhT6m5tmg1tcpUyDs0EMzO9JMq0jDy2bhhDOeP3c4Qyrk7YeYd0aIOJ3q.yJMRhutBIiNV1AgX)
-
-[Sep 22](https://wsu.zoom.us/rec/share/dPh2Kw8xObZOEd5BuitCQg6Eub2i5suznq-OrYD6V_GeZoaGG-AyCtVfvRk5zI1G.ADr-6l2sTISm3ozP)
-
-[Sep 29](https://wsu.zoom.us/rec/share/AyccPnAPRwt5AKIfa4xfpYe0ER4_QvistE0mHrrKwPbLMKCDWX87WpR7QFhQCpRv.K4Lcpfzqohus2Rp1)
-
-[Oct 1](https://wsu.zoom.us/rec/share/odwSkd6NDmv7uLATYKQOCGryq7tta82gw0055oUrCGBZrM_MW6N0kSfDXSMswLA2.eoVffDPVgkntdmxO)
-
-[Oct 6](https://wsu.zoom.us/rec/share/GyvFhJRX31fr6fq0LKiDySDLct6PhXGUsDr_JyvziT8W-S0aIg_yX6jFpTIJwLDB.WukI5tJkc2ICnhFK)
-
-[Oct 13](https://wsu.zoom.us/rec/share/hUrGMcgaWpFhU5XUlSjocorQLs52mXN-rZaRplSnnk6hwSQGph0mtSwfzg5x8Bhh.d1MiSZ2M8TAOYnAW)
-
-[Oct 15](https://wsu.zoom.us/rec/share/x-jO99kuBC5y3sRKnrmIkjl5kdJDn3XyuuyM8Rb4VNs_t3t8vbQ9ZWp8NrMELtMS.XbaUZOUrzeccRZiH)
-
-[Oct 20](https://wsu.zoom.us/rec/share/Q_jdYE-7MjI7mvkiqoYOOYt3VuH5ucDQN_muHnU5r4V6fNPnsE0VkvlkZ_2QamPJ.HJqvibMklQC10Ywu)
-
-[Oct 22](https://wsu.zoom.us/rec/share/dzJcmhtwCLAqEtCEYisb6nzYkCpSeVJEE4Ozcfg9ZUW31MHIx4qgEjlsP24O59wf.sPE2SXAbE8RLBnWR)
-
-[Oct 27](https://wsu.zoom.us/rec/share/qFNVzRgBfZOfjuymGO0qEAmX4avGKJq-UyqniwgN5nMpvxfxzR-1_JX-3BD2zgfJ.krpJvRs5k2UE6pd9)
-
-[oct 29](https://wsu.zoom.us/rec/share/Cc1eGF7gQZZXKLIg0kJ_MJPoaqExKfGNiCRVMV866Z0McxgmKWzjcM2_V1Eg5DKJ.FpIUjuG6kshV10ua)
-
-[Nov 3](https://wsu.zoom.us/rec/share/q4-WdJGzL8k4nIr8wS2Op82eQN3fsN2YhzMeRBuDqFrfS7vd--U8KmIxbh1NT-jk.oJn1rBeaRb9lcVYH)
-
-[Nov 10](https://wsu.zoom.us/rec/share/G6mq3KO_54wLpMU5PO9-h5AvR4vj3NnPg9Ok8jHEVEvg0fz_7R1rzFMW1HpFYLdD.WVDvs4Xy0_T7t8z_)
-
-[Nov 12](https://wsu.zoom.us/rec/share/BAuXBrDaQn-wGvntwOqHIwTpsAWD4G-074rQ37WERoipok7V81ye4uNBT0SGkDA2.YobQf3vv4MIQ5e9e)
-
-[Nov 17](https://wsu.zoom.us/rec/share/4704rzj95H-sRPTv2pjLqyFPGyM1kKixMexZaetKCJewS7IVXHVoEyrMxMiRxG0T.EO6Nul-9ga2TeVSd)
-
-[Nov 19](https://wsu.zoom.us/rec/share/vbIfAlUOu5qmRdwesOe9jv4XUZC_cBGb_Tb8mIkhJprYVov5TRhN4-pYS94Re5g.iAuRx2DKjNH6POsa)
-
-[Dec 1](https://wsu.zoom.us/rec/share/KdrBrLAtfvnb7O0NynS1TQ97XUEQQASBYGqV5jLaveuX7-CXadb0ZxQ3zz2q--1g.mwGz1hjwMQ6JKcsG)
-
-[Dec 3](https://wsu.zoom.us/rec/share/MRsK77-1STVvvMlvsLWGFiCBeBqZmTAVWmoJlN1pgu3uhoU3oBDvLsNkAlnQtiz5.ZzjdmfYAM493dkUP)
