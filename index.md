@@ -22,6 +22,9 @@
 
 [Feb 17](https://wsu.zoom.us/rec/share/J1Rp18ojAxsCMSxacqvZ_1zzIW7AztNvDkFgtKF0fLKLLiZ_JeBGGpPxO8Qrlhto.xwJrVTcuVAuGU8ZR)
 
+[Feb 19](https://wsu.zoom.us/rec/share/7gpDTuA4a0NGThs_7W5GfRtwwdXIEUKTGHcI2u0qK2togDNueKsH2PzKW2J_1MvM.xTkVZQra-r9CIR2r)
+
+[Feb 24](https://wsu.zoom.us/rec/share/J1ctnEFP7Sn4tBt7SCT_UHLCwzvcyVULT-5e7wQ4QfaJN_q0zTGLmkpA1e7nm5fj.RjxxDzL9MktQJEib)
 
 
 # Anth 360
@@ -45,3 +48,5 @@
 [Feb 12](https://wsu.zoom.us/rec/share/ovN4IEkDLcQnQGdkvffPtkH06npsRIkhUcAI7Pcqwiu16gSy9iDxGNsY9Rhq4HEG.hKcx2JIWWZ_L4jBp)
 
 [Feb 17](https://wsu.zoom.us/rec/share/-RRXvaV1roDRh6F1q-UgT4cR8oWyPJaS-NNwe2k6QKtXN3KMGMuAyrNm4UGI9inC.vQ5aZgjfuLK1vfEB)
+
+[Feb 19](https://wsu.zoom.us/rec/share/iJsYOrJNx86uUAKNSFdRwNudpOExQ52kFdczsecVSXPJ1FqJJZ_7j8B7g-Wk_mR6.pFvK8aNjlo5MywFb)
