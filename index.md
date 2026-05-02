@@ -46,6 +46,20 @@
 
 [Apr 9](https://wsu.zoom.us/rec/share/Wl_g0nVDh4ZHXViEK9J1qMAQzOvfs0YN58WC2-C-a_dHmxAN7yb1Pw6kcY2S_PSn.5z3V_39gK7uz4c7M)
 
+[Apr 14](https://wsu.zoom.us/rec/share/oNhZhAArnXsMuno_KzXB2eDyCbiHPQNcheftc6X6sJ3t3T0FZgJJl5TkJCPyV8YR.KEZfHXlUM87RNBp-)
+
+[Apr 16](https://wsu.zoom.us/rec/share/2jlonbKkxx4zfSYVQzXWlpmpyjLbM4128UFuo_g_y1Ur-nAbEWBJcwm5ZMSByNU.J67gnuRpENIOOwIq)
+
+[Apr 21](https://wsu.zoom.us/rec/share/aWsPE3TPcpgb0GU8EAdf8Zueylv1ZGGriozxLqtxtVyk20nushnibkyY5-ASzX0U.6TQAmxr4k7J1ebrk)
+
+[Apr 23](https://wsu.zoom.us/rec/share/TU_lsQfCdMj03x44eBjJcK5qyVaf8tW1fpslP2AgSH3zfGD73N03AmD2YDSygp_S.1uWtB-2paWZMNTg7)
+
+[Apr 28](https://wsu.zoom.us/rec/share/j11zRKt7Q1UnZ4vUpWNDUD-oQ_4TWU-9UrzvwSfdkammAyBQfOPwYR40U-79hD4.R80TCrEcOzmBt7ch)
+
+[Apr 30](https://wsu.zoom.us/rec/share/JcMSrcUoEJq0gtmbzcvpkcmgtvlS3ew8aNHIuDPMCBUZ9c7i959Jq3d7m34VMXmL.V3J1URit2oJLWJMT)
+
+
+
 # Anth 360
 
 [Jan 15](https://wsu.zoom.us/rec/share/F3P8ccY3NvU-Xmtagiim6L_17mwDfrsY3GlKdnKFNL1PoGNWTAQ3miwjck9T5Ksr.P0Ddr8zn-srfckn5)
@@ -89,3 +103,15 @@
 [Apr 7](https://wsu.zoom.us/rec/share/4Su4rLWnDOYLx3_sj6PIdCa5Dsn4gTrIBM5odQFlghU84cjhND-73VXkppGse_72.RgM5zUqYMswk0pnW)
 
 [Apr 9](https://wsu.zoom.us/rec/share/CCQKlHa3amMKA4RmOHwpapYHfQj3dnzHXD2cAf5ZEcF_EDxYlcAnIUcWhpjz75ql.4lQlkRLalIXXyiT_)
+
+[Apr 14](https://wsu.zoom.us/rec/share/Sx3KQhKcBJRg4IvRcy8zDuwLWtRiXbchLMBVcggrIKp0cxyfMv1WA4fpYgsN81jZ.__V5HiSUleQ_OU5S)
+
+[Apr 16](https://wsu.zoom.us/rec/share/t0TtSgi26Yz7uvGLR8DaJxaimC3pwUv4udjteEyhHxLw_k9MQrSnQlHnUk6ecFXp.uOA5Qt_pF3WTWSZ-)
+
+[Apr 21](https://wsu.zoom.us/rec/share/1B2n_BjyZZJ1Mre2px3Yn_LQQkomnh__CB_RUVGrO2aI9nSmzdwgMnQ33fqNNF2N.xz-Ix3JsHvXuDDQU)
+
+[Apr 23](https://wsu.zoom.us/rec/share/IwGvIyqEfoPflMEXLfzO342rWP6ayh6Qd8q5Gw5Gl2TKxAR2jMA1EAMntuIaxSOF.9_UgnzDjcC7TJI-b)
+
+[Apr 28](https://wsu.zoom.us/rec/share/lSAmAyBADgoKZXntkkNdCEboIJ2Xcmg5OrkAyyFgKc_J5Tpjgi1_0iq3cRcZZPw_.f1ViKBo3SktVcBHh)
+
+[Apr 30](https://wsu.zoom.us/rec/share/swLKnXHljNXOFzSnhXO9bD0_QR75EkKekCnE3gHsSh7E7YuO6Tz0fcT5KclV6SUu.mJXo1JzvXXZVqn8B)
